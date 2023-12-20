@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 <!--
-**ZakiAli72/ZakiAli72** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+My name is Zaki Ali Asgar Ali Mulji. I am from Mumbai. I am studying at Rizvi College Bandra.
 
 Here are some ideas to get you started:
 
